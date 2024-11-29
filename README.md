@@ -1,1 +1,2 @@
 # Estrategias-financieras-inteligentes
+Gestionar grandes patrimonios requiere precisión. Los fondos pasivos destacan por simplicidad y costos bajos, ideales para estrategias estables. La gestión activa, en cambio, se adapta a mercados volátiles, personalizando inversiones según objetivos específicos. Ambas opciones tienen ventajas y desafíos, pero una estrategia híbrida puede equilibrar simplicidad y adaptabilidad para maximizar resultados.
